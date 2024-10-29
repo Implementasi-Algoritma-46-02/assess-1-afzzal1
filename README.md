@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: Afzzal Faizal Rabby
 
-NIM : 
+NIM : 607062400039
 
 ## Instruksi
 
